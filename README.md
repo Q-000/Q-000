@@ -11,3 +11,5 @@ Q-000/Q-000 is a ✨ special ✨ repository because its `README.md` (this file) 
 You can click the Preview link to take a look at your changes.
 ---> 
 Hi, I’m @Q-000
+I’m currently learning ...
+- 💞️ I’m looking to collaborate on
