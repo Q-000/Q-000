@@ -13,3 +13,6 @@ You can click the Preview link to take a look at your changes.
 Hi, I’m @Q-000
 I’m currently learning ...
 - 💞️ I’m looking to collaborate on
+https://www.instagram.com/mish00815?igsh=MXMyNzg5ZzF6b2p6dA%3D%3D&utm_source=qr
+
+
